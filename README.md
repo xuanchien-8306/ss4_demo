@@ -1,2 +1,3 @@
 Tạ Xuân Chiến
-Đặng Văn THắng
+Đặng Văn Thắng
+Hoàng Trung Dũng
